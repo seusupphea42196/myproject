@@ -1,1 +1,1 @@
-The growth of suburbanization in the 19th century spurred the construction of feeder roads and highways to connect residential areas to urban centers and transportation networks.
+The construction of the Trans-Canada Highway, completed in 1962, connected Canada from coast to coast, facilitating transportation and commerce between provinces and regions.
