@@ -1,1 +1,1 @@
-The growth of suburbanization in the 19th century spurred the construction of feeder roads and highways to connect residential areas to urban centers and transportation networks.
+In urban areas, streets were often narrow and congested, with pedestrians, carts, and animals competing for limited space, leading to traffic jams and safety hazards.
