@@ -1,1 +1,1 @@
-The emergence of professional road engineers and surveyors in the 19th century contributed to advances in road design, drainage, and construction techniques, leading to more efficient and durable roads.
+The development of intelligent transportation systems (ITS) in the late 20th century, including traffic management technologies, dynamic message signs, and vehicle-to-infrastructure communication, improved traffic flow and safety on roads.
