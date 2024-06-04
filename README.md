@@ -1,1 +1,1 @@
-The expansion of colonial empires in the 19th century spurred road construction in colonies and territories, often to facilitate the extraction of natural resources and the movement of troops and supplies.
+Road signage in the 18th century was rudimentary compared to modern standards, with simple milestones, signposts, and direction markers used to guide travelers along routes.
