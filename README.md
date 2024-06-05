@@ -1,1 +1,1 @@
-Road signage in the 18th century was rudimentary compared to modern standards, with simple milestones, signposts, and direction markers used to guide travelers along routes.
+The construction of the first modern highways, such as the Macadamized National Road in the United States, marked a significant milestone in 19th-century road development, providing a model for future road-building projects.
