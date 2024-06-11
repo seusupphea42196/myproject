@@ -1,1 +1,1 @@
-The 18th century saw the emergence of professional road builders and engineers who specialized in road construction and maintenance, introducing new techniques and standards for road design and management.
+The development of macadam roads, pioneered by Scottish engineer John Loudon McAdam in the late 18th century, revolutionized road construction by introducing layers of crushed stone and gravel for improved durability and drainage.
