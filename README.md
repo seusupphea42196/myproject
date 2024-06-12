@@ -1,1 +1,1 @@
-The development of macadam roads, pioneered by Scottish engineer John Loudon McAdam in the late 18th century, revolutionized road construction by introducing layers of crushed stone and gravel for improved durability and drainage.
+Road signage in the 18th century was rudimentary compared to modern standards, with simple milestones, signposts, and direction markers used to guide travelers along routes.
