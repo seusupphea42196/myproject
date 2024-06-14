@@ -1,1 +1,1 @@
-Roads in the 18th century were primarily unpaved, consisting of dirt, gravel, or cobblestones, which made travel slow, difficult, and uncomfortable.
+The construction of the Trans-Canada Highway, completed in 1962, connected Canada from coast to coast, facilitating transportation and commerce between provinces and regions.
