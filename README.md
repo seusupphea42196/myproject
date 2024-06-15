@@ -1,1 +1,1 @@
-The construction of the Trans-Canada Highway, completed in 1962, connected Canada from coast to coast, facilitating transportation and commerce between provinces and regions.
+The introduction of the Ford Model T in 1908 revolutionized personal transportation, leading to increased demand for roads and highways to accommodate the growing number of automobiles on the road.
