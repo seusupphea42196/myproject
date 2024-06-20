@@ -1,1 +1,1 @@
-Urbanization and industrialization in the 19th century led to increased demand for better roads to support commerce, industry, and transportation within and between cities.
+Stone bridges and culverts were constructed on some roads in the 18th century to facilitate river crossings and improve drainage, enhancing travel safety and reliability.
