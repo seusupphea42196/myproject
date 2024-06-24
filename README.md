@@ -1,1 +1,1 @@
-Stone bridges and culverts were constructed on some roads in the 18th century to facilitate river crossings and improve drainage, enhancing travel safety and reliability.
+The widespread adoption of road signs, lane markings, and traffic signals in the 20th century standardized communication and navigation for drivers, enhancing safety and reducing accidents on roads.
