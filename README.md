@@ -1,1 +1,1 @@
-The development of macadam roads, pioneered by Scottish engineer John Loudon McAdam in the late 18th century, revolutionized road construction by introducing layers of crushed stone and gravel for improved durability and drainage.
+The construction of canals and railways in the 19th century provided alternatives to road transportation for long-distance travel and freight transport, reducing reliance on traditional road networks.
