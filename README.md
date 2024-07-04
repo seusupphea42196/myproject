@@ -1,1 +1,1 @@
-The construction of canals and railways in the 19th century provided alternatives to road transportation for long-distance travel and freight transport, reducing reliance on traditional road networks.
+The width of 18th-century roads varied, with many being narrow and winding, particularly in rural areas, where terrain and property boundaries influenced their layout.
