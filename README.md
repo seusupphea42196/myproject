@@ -1,1 +1,1 @@
-The proliferation of the automobile industry in the 20th century led to increased demand for petroleum-based products, such as asphalt for road construction and gasoline for fueling vehicles, driving economic growth and industrialization.
+The introduction of the first motorways, or limited-access highways, in Europe in the 1920s and 1930s paved the way for the modern highway system, prioritizing speed, safety, and efficiency for long-distance travel.
