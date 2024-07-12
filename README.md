@@ -1,1 +1,1 @@
-The construction of canals and railways in the 19th century provided alternatives to road transportation for long-distance travel and freight transport, reducing reliance on traditional road networks.
+The widespread adoption of road signs, lane markings, and traffic signals in the 20th century standardized communication and navigation for drivers, enhancing safety and reducing accidents on roads.
