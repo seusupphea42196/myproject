@@ -1,1 +1,1 @@
-The introduction of steam-powered traction engines and early automobiles in the late 19th century posed new challenges and opportunities for road development, as these vehicles required smoother and more durable surfaces.
+Innovations in road construction materials and techniques, such as the use of asphalt and concrete, emerged in the 19th century, offering more durable and weather-resistant surfaces for roads.
