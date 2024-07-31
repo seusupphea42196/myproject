@@ -1,1 +1,1 @@
-The development of turnpikes, or toll roads, proliferated in the 19th century, with private companies or local governments collecting fees from travelers to fund road construction and maintenance.
+The 20th century witnessed unprecedented advancements in road infrastructure, with the widespread adoption of asphalt and concrete pavements, providing smoother and more durable surfaces for roads.
